@@ -1,4 +1,4 @@
-# CPA Landing Page - Gaming Niche 2
+# "Landwire" - CPA Landing Page - Gaming Niche 2
 
 <img src="https://i.imgur.com/aA58NNh.png"/>
 <br>
